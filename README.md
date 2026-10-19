@@ -1,1 +1,0 @@
-# resolvedesk-legal
